@@ -1,1 +1,1 @@
-# -betty-games-privacy-policy.
+# -betty's-custle-privacy-policy.
