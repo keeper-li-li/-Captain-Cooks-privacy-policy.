@@ -1,1 +1,1 @@
-# -betty's-custle-privacy-policy.
+# -Captain-Cooks-privacy-policy.
